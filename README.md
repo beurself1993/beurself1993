@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @beurself1993
 - 👀 I’m interested in Harry Potter!!! Ravenclaw, anyone!? Also, love Star Wars!
 - 🌱 I’m currently learning coding, wtf, thought this would be a but easier than what I anticipated!
-- 💞️ I’m looking to collaborate on life, becaude working out life alone is no fun.
+- 💞️ I’m looking to collaborate on life, because working out life alone is no fun.
 - 📫 How to reach me 
 - Facebook>https://www.facebook.com/theta.phi228/
 - instagram>https://www.instagram.com/beurself1993/
